@@ -1,1 +1,1 @@
-# oscars2024_knowledge
+# eurovision2024_knowledge

@@ -1,0 +1,9 @@
+**The Eurovision Song Contest 2024** was the 68th edition of the Eurovision Song Contest. It took place in Malmö, Sweden, following the country's victory at the 2023 contest with the song "Tattoo" by Loreen. Organised by the European Broadcasting Union (EBU) and host broadcaster Sveriges Television (SVT), the contest was held at the Malmö Arena, and consisted of two semi-finals, on 7 and 9 May, and a final on 11 May 2024. The three live shows were presented by Petra Mede and Malin Åkerman, with Mede having previously taken on the role in 2013 and 2016.
+
+Thirty-seven countries participated in the contest, the same number as in 2023. Romania opted not to participate, and Luxembourg competed for the first time since 1993. The Netherlands was disqualified from the contest between the second semi-final and the final, but the country retained its right to vote. The inclusion of Israel among the participants in the context of the Israel–Hamas war was met with controversy, and additional security measures were put in place for the event.
+
+The winner was Switzerland with the song "The Code", performed by the Swiss singer Nemo and written by them with Benjamin Alasu, Lasse Midtsian Nymann, and Linda Dale. Switzerland won the combined vote and jury vote, and placed fifth in the televote. Croatia won the televote and finished in second place, its best result to date as an independent country. Ukraine, France, and Israel completed the top five.
+
+The EBU reported that the contest had a television audience of 163 million viewers in 37 European markets, an increase of a million viewers from the previous edition, with an additional 7.3 million viewers online on YouTube.
+
+ 
